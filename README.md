@@ -1,2 +1,2 @@
 
-https://Isabelydjoliz.github.io/inspiradorasprofuturo/
+https://isabelydjoliz.github.io/inspiradorasprofuturo/
